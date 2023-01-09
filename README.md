@@ -7,6 +7,6 @@
 
 ### Let's get connected:- 
 
-### > [My Linkedin Handle](https://linkedin.com/in/krishnamundada)
+### > [My Linkedin Handle](https://linkedin.com/in/krishna-mundada)
 
 ### > [GDSC RCOEM](linktr.ee/gdsc_rcoem)
